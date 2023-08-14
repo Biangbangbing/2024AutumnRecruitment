@@ -42,8 +42,14 @@ for 2024秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 # 凡岛网络
 
 【7月12日-8月中旬】提前批内推投递链接：https://docs.qq.com/form/page/DWGx0Y2V2dVBVakRx
+
 【8月中旬-】秋招正式批内推投递链接：https://docs.qq.com/form/page/DWGx0Y2V2dVBVakRx
 
+
+
+# 菜鸟招聘
+
+【】正式批内推投递链接：
 
 
 ------
