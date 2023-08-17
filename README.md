@@ -22,6 +22,8 @@ for 2024秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 【8月10日-10月31】[秋招正式批投递连接](https://job.toutiao.com/campus/m/position?external_referral_code=S7Z85H7&type=2)
 
+校招社群：148272872
+
 
 # 小红书
 
@@ -47,9 +49,20 @@ for 2024秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 
 
-# 菜鸟招聘
+# 菜鸟
 
-【】正式批内推投递链接：
+内推码：HNUBY
+
+【8月14日-11月】正式批内推投递链接：https://jinshuju.net/f/e56EKU 
+
+校招社群：692654364
+
+
+# realme
+
+内推码：uuzrgb
+
+【8月14日-11月】正式批投递链接：https://career.realme.com
 
 
 ------
