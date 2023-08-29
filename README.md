@@ -65,6 +65,37 @@ for 2024秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 【8月14日-11月】正式批投递链接：https://career.realme.com
 
 
+# 晶科能源
+
+内推码：DSGphzqz
+
+【8月14日-11月】正式批内推投递链接：https://app.mokahr.com/m/campus-recruitment/jinkosolar/41896?recommendCode=DSGphZqz#/jobs
+
+
+
+# 新国都
+
+内推码：DSPNVVR7
+
+【8月14日-】正式批投递链接：https://career.realme.com
+
+
+# 途虎养车
+
+内推码：DSafmkvj
+
+【8月29日-】正式批内推投递链接：https://app.mokahr.com/m/campus_apply/tuhu/28398?recommendCode=DSafmKvj#/jobs
+
+校招社群：692654364
+
+
+# CVTE
+
+内推码：CVTE2024CSBY
+
+【8月21日-11月】正式批投递链接：https://campus.cvte.com
+
+
 ------
 
 # 秋招信息汇总文档
