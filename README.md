@@ -77,7 +77,7 @@ for 2024秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 内推码：DSPNVVR7
 
-【8月14日-】正式批投递链接：https://career.realme.com
+【8月14日-】正式批投递链接：https://campus.xgd.com
 
 
 # 途虎养车
