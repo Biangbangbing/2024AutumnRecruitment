@@ -67,7 +67,7 @@ for 2024秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 # 晶科能源
 
-内推码：DSGphzqz
+内推码：DSGphZqz
 
 【8月14日-11月】正式批内推投递链接：https://app.mokahr.com/m/campus-recruitment/jinkosolar/41896?recommendCode=DSGphZqz#/jobs
 
@@ -82,7 +82,7 @@ for 2024秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 # 途虎养车
 
-内推码：DSafmkvj
+内推码：DSafmKvj
 
 【8月29日-】正式批内推投递链接：https://app.mokahr.com/m/campus_apply/tuhu/28398?recommendCode=DSafmKvj#/jobs
 
