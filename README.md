@@ -58,11 +58,27 @@ for 2024秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 校招社群：692654364
 
 
+
+# 顺丰速运
+
+内推码：0OW95G
+
+【9月-】正式批投递链接：https://campus.sf-express.com/m/#/homePage
+
+
+
 # realme
 
 内推码：uuzrgb
 
 【8月14日-11月】正式批投递链接：https://career.realme.com
+
+
+
+# 海尔
+
+【】内推链接：https://maker.haier.net/client/campusmobile/activity/id/25.html?inviter_code=cmo5Q0Ftbko1cTQ9
+
 
 
 # 晶科能源
@@ -77,7 +93,8 @@ for 2024秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 内推码：DSPNVVR7
 
-【8月14日-】正式批投递链接：https://campus.xgd.com
+~~【8月14日-9月30日】正式批投递链接：https://campus.xgd.com~~
+
 
 
 # 途虎养车
@@ -89,11 +106,36 @@ for 2024秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 校招社群：692654364
 
 
+
 # CVTE
 
 内推码：CVTE2024CSBY
 
 【8月21日-11月】正式批投递链接：https://campus.cvte.com
+
+
+
+# 深圳硅基仿生科技
+
+内推码：EVKMA9
+
+【8月14日-】正式批投递链接：sibionics.zhiye.com/campus/jobs
+
+
+
+# 珠海优特电力科技
+
+内推码：ESVPBS
+
+【8月29日-】正式批内推投递链接：https://utpower.zhiye.com/campus/jobs
+
+
+
+# 格蓝若
+
+内推码：mgphzc
+
+【9月-】正式批投递链接：https://wecruit.hotjob.cn/SU64a3e2520dcad4644b4d286e/mc/index
 
 
 ------
